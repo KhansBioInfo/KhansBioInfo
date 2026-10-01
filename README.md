@@ -47,4 +47,4 @@ Bioinformatics · Genomics · Computational Biology · Biological Data Analysis
 
 ##  Connect
 
-[LinkedIn](www.linkedin.com/in/abdul-kareem-khan-1baa633a0)
+[LinkedIn](https://www.linkedin.com/in/abdul-kareem-khan-1baa633a0/)
